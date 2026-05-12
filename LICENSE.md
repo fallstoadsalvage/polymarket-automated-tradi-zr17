@@ -1,4 +1,4 @@
-# 
+# secure Polymarket Module | multi-exchange-support + stop-loss-management offers the most advanced Polymarket module, with multi-exchange-support and stop-loss-management. Ideal
 
 
 
